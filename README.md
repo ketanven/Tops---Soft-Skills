@@ -4,5 +4,7 @@ Module 2 (Technology)    -  https://youtube.com/shorts/IHWeVpAI5ak?si=J25Fv5pgyg
 
 Module 3 (Projects) - https://youtube.com/shorts/Q47ybuczM-M?si=ClKtqwnbihsLQ1A_
 
+Module 4 (HR Questions) -  https://youtube.com/shorts/tH7yweQEElc?si=ZyV-mqJ9d2QRRHxt
+
 Module - Self Evaluation,Linkedin Profile And Resume Builder - https://www.linkedin.com/in/ketan-venkatesh-pillai-ba1663277?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
